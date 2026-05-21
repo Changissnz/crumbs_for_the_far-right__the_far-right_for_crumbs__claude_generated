@@ -29,7 +29,7 @@ William stood up at the dinner table, went up to her face, and snarled at her: "
 
 There was no horseplay in that action William took. William did not run away into the arms of the many flavors of Arabian women, like how the piece "Of Trends, Types, and Truths in Narration" phrased the archetypal Brittanian.
 
-Sigyn Thornprikkensen. The story describes how she smiles: pulling her upper lip to make her bottom lip appear twice the width. A Brittanian standard of beauty. Where did she get it from? Brittanian culture. That case right there demonstrated that Brittania no longer had full ownership over its own cultural standards, which obviously pointed to the more painful truth for Brittanians that they were really losing their way during that time period.
+Sigyn Thornprikkensen. The story describes how she smiles: pulling in her upper lip to make her bottom lip appear twice the width. A Brittanian standard of beauty. Where did she get it from? Brittanian culture. That case right there demonstrated that Brittania no longer had full ownership over its own cultural standards, which obviously pointed to the more painful truth for Brittanians that they were really losing their way during that time period. See story [Some elaboration on fictional characters from Brittania and Germania, further adding evidence to Brittania's undeniable decline during the rule of American President Crumbs](https://github.com/Changissnz/brittania-s_follies_rest_with_its_people__claude_generated) for more information.
 
 ---
 
